@@ -1,1 +1,0 @@
-# atective.github.io
